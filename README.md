@@ -2,7 +2,7 @@
 
 **Administrative Officer**
 
-I'm Larissa, I’m 24 years old, and I’m from Brazil. I have a degree in Business Administration and am currently pursuing a Diploma of Information Technology at the Academy of Interactive Technology in Sydney. I currently work as an Administrative Officer at Sydney Distance Education High School. I'm studying to become a future Business Intelligence Analyst. I'm dedicated to expanding my skills in data analysis and focused on building a strong foundation in the field. My goal is to analyze and interpret data effectively, helping organizations make data-driven decisions.
+I'm Larissa, I’m 25 years old, and I’m from Brazil. I have a degree in Business Administration and am currently pursuing a Diploma of Information Technology at the Academy of Interactive Technology in Sydney. I currently work as an Administrative Officer at Sydney Distance Education High School. I'm studying to become a future Business Intelligence Analyst. I'm dedicated to expanding my skills in data analysis and focused on building a strong foundation in the field. My goal is to analyze and interpret data effectively, helping organizations make data-driven decisions.
 
 ---
 
